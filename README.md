@@ -13,3 +13,5 @@ Key highlights of the updated syllabus include:
 Students, parents, and educators are advised to review the updated syllabus and guidelines available through official CBSE channels. Schools are expected to implement these changes from the beginning of the 2026–2027 academic session.
 
 For detailed subject-wise updates, please refer to the official CBSE curriculum documents.
+APRIL FOOLS!!!!!!!!!!!!!! 
+have a pranked day
